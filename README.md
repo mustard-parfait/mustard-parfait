@@ -1,1 +1,1 @@
-![Jessie][img/jessie.gif]
+![Jessie](img/jessie.gif)
