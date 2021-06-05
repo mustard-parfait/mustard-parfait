@@ -1,3 +1,3 @@
 <p align="center">
-  <a href="https://70xh.github.io/"><img src="img/jessie.gif" alt="Jessie"></a>
+  <a href="https://70xh.github.io/"><img src="img/joel.gif" alt="Joel"></a>
 </p>
