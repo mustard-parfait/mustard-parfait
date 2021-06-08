@@ -1,6 +1,6 @@
 # Wagwan!!!
 
-I'm xhandler also referred as 70xH, but ofically `[El]x\x81NZxE\x8dEN`.
+I'm xhandler also referred as 70xH, but ofically `El]x\x81NZxE\x8dEN`.
 
 ## Welcome to my volatile profile
 
