@@ -1,6 +1,6 @@
 # Hoi!!!
 
-I'm xhandler also referred as Bug Streak, but offically `El]x\x81NZxE\x8dEN`.
+I'm Bug Streak
 
 ## Welcome to my volatile profile
 
