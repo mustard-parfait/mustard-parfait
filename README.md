@@ -1,6 +1,6 @@
-# Wagwan!!!
+# Hoi!!!
 
-I'm xhandler also referred as 70xH, but offically `El]x\x81NZxE\x8dEN`.
+I'm xhandler also referred as Bug Streak, but offically `El]x\x81NZxE\x8dEN`.
 
 ## Welcome to my volatile profile
 
